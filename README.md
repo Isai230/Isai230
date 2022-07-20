@@ -25,13 +25,17 @@ Tenémos participaciónes en torneos
 🌾 Cada semana recibes $400 MXN por ser 
 Integrante de Nova (es apoyo para los que
 estudian y juegan a la vez
+
 🌾 Torneos internos y salas privadas
+
 🌾 Los mejores 3 de NOVA en cada temporada
 reciben una ruleta legendaria (la que ustedes
  gusten)
+
 🌾 Extra* si adquieres nuestros hacks 
 Recibes pase de batalla premium  gratis
- todas las temporadas 
+ todas las temporadas
+ 
 🌾 En caso de ser baneado te regalamos
  una cuenta con 3 legendarias y 10 mil cps
 
