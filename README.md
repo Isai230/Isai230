@@ -48,4 +48,25 @@ nuestra página y el dinero de los hacks
  y su 35 
 
 
+NI MODO
+NOVA SE ESTA MURIENDO YA NO HAY DINERO 
+
+
+DEP NoVA 😭😭
+Descanse en paz 
+Saucedo te amo🥰🥰
+
+Nova 
+15 de noviembre 2021 -- 14 de Agosto 2022
+Fue lindo mientras duro 🌱
+
+
+
+Pero eyyy los baneados no faltaron XD 
+
+Nova Descanse en paz 
+15/11/21 - 14/08/22
+
+
+
  
