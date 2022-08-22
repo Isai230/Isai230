@@ -22,9 +22,9 @@ Tenémos participaciónes en torneos
 
 💌 DENOVA te ofrece :
 
-🌾 Cada semana recibes $400 MXN por ser 
+🌾 Cada semana recibes $600 MXN por ser 
 Integrante de Nova (es apoyo para los que
-estudian y juegan a la vez
+estudian y juegan a la vez)
 
 🌾 Torneos internos y salas privadas
 
@@ -47,25 +47,10 @@ nuestra página y el dinero de los hacks
 💕 Los queremos mucho de parte de NOVA
  y su 35 
 
-
-NI MODO
-NOVA SE ESTA MURIENDO YA NO HAY DINERO 
-
-
-DEP NoVA 😭😭
-Descanse en paz 
-Saucedo te amo🥰🥰
-
-Nova 
-15 de noviembre 2021 -- 14 de Agosto 2022
-Fue lindo mientras duro 🌱
+ 
 
 
 
-Pero eyyy los baneados no faltaron XD 
-
-Nova Descanse en paz 
-15/11/21 - 14/08/22
 
 
 
