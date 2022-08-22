@@ -49,7 +49,30 @@ nuestra página y el dinero de los hacks
 
  
 
+🔺Pase de batalla gratis 
 
+🔺$600 MXN cada fin de semana por ser de la 
+  Familia NOVA
+
+🔺Ser activos 
+
+🔺No tóxicos 
+
+ 🔺Scrims todas las noches 11 PM
+
+🔺Tener cuenta de Pay Pal (obligatorio)
+
+🔸 Cuenta de banco Azteca 
+🔸 Cuenta de Banamex 
+
+🔺 Jugadores competitivos estar 24/7 activos 
+🔸 Recibirán arriba de $1500 
+🔸 Ruletas 
+🔸 Cajas
+
+
+
+   
 
 
 
